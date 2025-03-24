@@ -1,1 +1,1 @@
-# www.EdsonMandlatehttps-techneon-portfolio-hub.lovable.app.mz
+# www.EdsonMandlatehttps-techneon-portfolio-hub.lovable.app.co.mz
